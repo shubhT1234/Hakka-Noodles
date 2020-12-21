@@ -1,0 +1,1 @@
+Water, noodles, sauces, spices, capsicum, carrot, onion, vinegar.
